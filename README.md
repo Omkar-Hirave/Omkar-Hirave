@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **omkarhirve05@gmail.com**
 
-- ⚡ Fun fact **Wherever I go, I am rock.**
+- ⚡ Fun fact **Wherever I go, I  rock.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
